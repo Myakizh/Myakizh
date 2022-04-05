@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Myakizh
+- 👀 I’m a beginner programmer and student 
+- 💞️ I will post my training projects here and I am always glad to receve your critics or advices
+- 📫 To reach me, just send a letter to my discord Sweet Cake#0604
